@@ -22,394 +22,122 @@
 
 ## Transcription
 
-Unknown Speaker 0:01  
-I think I can't remember everything that you say.
-
-Unknown Speaker 0:06  
-Alright, sorry.
-
-Unknown Speaker 0:09  
-Yeah, so I guess I always been into like, the mobile photography side of things, you know, had a smartphone for quite a while
-
-Unknown Speaker 0:20  
-half Asian so always taking photos.
-
-Unknown Speaker 2:16  
-it's basically t he same thing now
-
-Unknown Speaker 2:20  
-so by the time you left was there like a a similar experience?
-
-Unknown Speaker 2:26  
-Um
-
-Unknown Speaker 2:29  
-Yeah, it was like the upload experience with I would say was like still heavily mobile like we built a web uploader and everything. But as far as I wasn't, like, super sophisticated, like you added stuff. You added some tags, and then that was it. I think most people were still uploading on mobile. Yeah, it wasn't super sophisticated, as I remember a while ago now. Yeah.
-
-Unknown Speaker 2:56  
-And how is your life Like, how is your habits changed? Or if they have changed with taking photos coming out of iron?
-
-Unknown Speaker 3:08  
-Yeah, I guess I take a lot less like, and I definitely don't do [[release] and stuff anymore. Because it was like we would take I'm sure it's the same now, but like, we were taking heaps of pictures of each other. And so like, so he get [[releases]] and like upload them to the platform. But um, yeah, I guess maybe, maybe I take less photos as well. Probably. Yeah, I probably take less photos than I used to. And then I the people I take photos, although I don't work like they don't work in photography anymore. So I don't release. Yeah, the less compelling I think. Now. Definitely. Yeah.
-
-Unknown Speaker 3:47  
-And do you have a specific idea of what to shoot?
-
-Unknown Speaker 3:54  
-Are you just now days walking around and spontaneously shooting or do you have an idea on what to shoot?
-
-Unknown Speaker 4:01  
-Yeah, it's mostly like I don't walk around thinking like I'm gonna shoot this and sell it. Occasionally I might like if I'm taking pictures of my friends I might do like a close up of hands or something because I know I can sell that quicker without a BA I wouldn't I definitely wouldn't go walk around the city and take photos to shoot yourself is more just like looking for my camera on and I'm like, I could sell that like, Oh, I just scrub out this no guy could sell that.
-
-Unknown Speaker 4:27  
-How do you know hands sell?
-
-Unknown Speaker 4:32 [[Model Release]]
-I just know the rules around model abd property [[releases]] because of experience at EyeEm and how it significantly easier to get your photos on market without the need for a release.
-
-Unknown Speaker 4:52  
-do you do you use other competitors? I know that Peter said that you use [[Twenty20]] Yeah, anything more that you've like you use regularly or have used in the past?
-
-Unknown Speaker 5:07  
-Yeah, I use [[Shutterstock]] like as an individual contributor. And then I use [[Twenty20]]. And I am those are probably the three main ones. Yeah, I don't really use any on any other platforms, like separately. I just rely on my stuff going to getting through I am.
-
-Unknown Speaker 5:26  
-Okay, yeah, I un derstand. And out of all those three, what would you say is the best experience like how would you define like a good seller experience for yourself?
-
-Unknown Speaker 5:39  
-Yeah. Easy to upload. I think. Like, the best thing about it is that you don't have to keyword I know the key wordings obviously, not perfect, but to the point where I care about it. Like I'm not super likes, you know, I'm not super stuck on it. So you know, Some people probably go through and like me where their photos to perfection, but I don't really care. And that's one thing that sets him apart I think is the fact that you don't really need to keyword it like it will be done for you. I think [[Twenty20]]s are actually trialing something like that. So they have suggested keywords now. And [[Shutterstock]] do have always had suggested keywords as well, I guess. But there's always some missing. I don't know, I feel like it's, yeah, again, it's probably because I have watched that, I feel like someone will take care of my cue reading it I am, whereas [[Shutterstock]] is my responsibility, like I have to do it. So it just feels like more effort. And like with [[Shutterstock]] you have to definitely pick more categories and stuff because it's just so you know, it's like kind of old school. So that's definitely the most painful [[Twenty20]] is actually not much effort at all. Um, they have the, in that process they have the bit where you can choose whether there's a modeling at the end, so they kind of do Some of the inspectors work for you. I have no idea how accurate it is. People probably just press all the way through and just like, Oh, yeah, there's no model even if there is a model, so I doubt it's very accurate. But yeah, there is that bit at the end as well, which is like an extra step, which I am doesn't have.
-
-Unknown Speaker 7:20  
-And
-
-Unknown Speaker 7:22  
-is there any ot her features that you feel is necessary for it to be a good experience apart from, let's say, the upload?
-
-Unknown Speaker 7:34  
-I mean, a nice t hing about Yeah, about about the upload experience, specifically, um,
-
-Unknown Speaker 7:41  
-well, it doesn't have to be specific about the upload. It could also be outside the upload experience, just like from your perspective as a seller. What are the the nice things that you've experienced using these different platforms?
-
-Unknown Speaker 7:54  
-Yeah, just havin g a look at it now. Yeah. remind myself Yeah.
-
-Unknown Speaker 8:04  
-So
-
-Unknown Speaker 8:06  
-I'm just going through the process for myself. Yeah.
-
-Unknown Speaker 8:10  
-I guess the
-
-Unknown Speaker 8:16  
-[[Twenty20]] doesn't ha ve any editing steps so I guess in that way I feel like you don't edit your photo, you know, you don't crop it or anything, you just literally load the finished product. So in that way might feel like less work with I am you can get that bit but like, you know, you may want to want to do that. And I yeah, I think the upload processes themselves are fairly similar. I'm just trying to think of anything specifically. I think one thing that I liked was not not like specific to the upload process, but With [[Twenty20]], when you sell a photo, you always get a notification. I know, it's not as easy as that, hey, just send me a notification because obviously, you have Getty and stuff, which is a bit harder. But yeah, getting those regular notifications is like, a little, little moment of joy. I guess. [[Twenty20]], which you don't get with iron with iron, you get like 13 emails at the end of the month, whereas with [[Twenty20]] it's more spread out. So yeah, I guess getting those congrat congratulation emails is nice, or it just reminds you all the time. So when I get the email, it makes me open up the product again, and then you have this loop of you know, I'll maybe I'll upload it. I think it's a really good acquisition though. Or like retention loop, just to get people back in as well. But again, Yeah, I know. It's not as simple as that. Just add an education because we also tried to think about doing that. Yeah, and then obviously, like the money side, everyone likes to platform where you make more money. Like it doesn't really matter how hard it is, since they they have Had this acquisition I think, Who did that? Who acquired them? Was it like invited someone? Yeah, I think yeah acquired them. And since then, yeah, we actually make more money. I'm pretty not really transparent with like how they make the money. But at the end of the day, you don't really care. But it just seems like whoever their customers are paying more whatever adjusted their subscriptions or whatever. So I'm actually making more of [[Twenty20]]. Now, even though my upload rate for both is probably about the same.
-
-Unknown Speaker 10:29  
-And the both for what like for,
-
-Unknown Speaker 10:35  
-let's say, I am you comparing it to Im or,
-
-Unknown Speaker 10:38  
-yeah, compared t o Im Yeah, I just compare those two. Like I probably upload pictures to both platforms, but I'll make more on [[Twenty20]] sadly, I feel like they also sell more editorial stuff on the [[Twenty20]]. Yeah, which might be why, like I sell mold because you can just upload pictures of people and you don't need more [[releases]] for them. Don't have any [[releases]] on [[Twenty20]] or like hobby any. So I haven't uploaded [[releases]] that for years, but are still selling a bit more. Um, yeah. So
-
-Unknown Speaker 11:13  
-I guess that tha t's pretty nice.
-
-Unknown Speaker 11:18  
-Yeah, what is th e general is the general.
-
-Unknown Speaker 11:24  
-So the payout mo ney is just simply more on [[Twenty20]] then something like I am.
-
-Unknown Speaker 11:32  
-Yeah, just like I'd say monthly monthly money that you make every month. It's just like me personally, maybe it's the type of photos I'm taking out and I just added [[Twenty20]] you just get that notification at the end of the month as well. So not much this month.
-
-Unknown Speaker 11:48  
-basis is identic al to what we were doing I am as well.
-
-Unknown Speaker 11:54  
-But yeah, I'm tr ying to think the other thing I can think of which is like very specific Perfect performances like I am app seems to be slower. I don't know if it's because like servers and stuff are over in Europe, but [[Twenty20]] is definitely faster. And then, you know, they just add periods as well. Like sometimes loading my feed on I am. I mean, I'm in Australia, so my Internet's not wildly fast. Um, you know, sometimes just waiting for the feed to load just takes ages. And that just like kind of puts you off as well. So but I guess they're doing a mobile rebuild and stuff. Maybe it's just it could because I'm just really far away. But that is off putting me that's a
-
-Unknown Speaker 12:39  
-good point, actu ally.
-
-Unknown Speaker 12:40  
-Yeah, I can. I don't know if people are aware of that. Because you probably don't have heaps of people writing into you from Australia being Yeah.
-
-Unknown Speaker 12:49  
-But
-
-Unknown Speaker 12:54  
-I did notice th at when I came over here from Europe, I was like, Oh my God, why is it so slow? But I think it's partly my lightspeed and my internet speed but also probably just the app as well
-
-Unknown Speaker 13:04  
-as Australian in ternet shocking.
-
-Unknown Speaker 13:06  
-Yeah.
-
-Unknown Speaker 13:08  
-It's like a it' s like a first world country the internet situation is completely a joke. Yeah.
-
-Unknown Speaker 13:14  
-In some places d on't even have like NBN yet and stuff, but it's coming. It's coming.
-
-Unknown Speaker 13:19  
-Yeah, it's alway s coming. Let's see. That's the
-
-Unknown Speaker 13:24  
-that's what they always say ends on terms of
-
-Unknown Speaker 13:31  
-status of
-
-Unknown Speaker 13:34  
-a photo, you kn ow, you've had, you've had dealings with inspectors, so you understand that kind of the process on our side, as a as a on the other side of it. How do you feel the experiences for you seeing if your photo gets approved or not?
-
-Unknown Speaker 13:54  
-Yeah, I see a lo t of stuff
-
-Unknown Speaker 13:57  
-in selected whic h sucks because I know that it's been rejected because it's been so long. But normal users probably wouldn't know that. I just know that because well, that's how the inspector used to work, at least, we just, if it's selected and rejected, we still just show selected to the user. So I, I'm sitting there, like, oh, all my photos are being rejected. I know they're not getting anywhere near again. But as a normal user, you'd probably be like, wow, the queues are so long wait time so long, as it still says select. Not an easy problem to solve as well, I think but I see a lot of my stuff sitting there.
-
-Unknown Speaker 14:36  
-I guess it would be good if you could, like,
-
-Unknown Speaker 14:39  
-show why it was rejected. And it is possible to fix like, Is it a sizing issue? Is it because there's a logo in there, which I've missed, but then again, like that re uploading process is painful as well. Like, if I if I uploaded it a month ago, that photo is going to be way back in my camera roll. And I'm not going to be bothered Scroll back and find it, edit it and then upload it again like, yeah, yeah, it's like a one time chance. I think. Even I know like, me as a super user, like, I probably wouldn't do it. I'd be like, Yeah, I don't need the 20 cents, which I'm gonna get from Getty. If I sell it.
-
-Unknown Speaker 15:15  
-Yeah, right.
-
-Unknown Speaker 15:19  
-And how and the n like, let's let's compare that with say something like [[Twenty20]] How would you How would you
-
-Unknown Speaker 15:28  
-how would you do I
-
-Unknown Speaker 15:28  
-think
-
-Unknown Speaker 15:30  
-I don't think t hey even have a status actually, I think they might do hold on let me stop loads. I mean, try.
-
-Unknown Speaker 15:44  
-Just add some ke y words.
-
-Unknown Speaker 15:51  
-So then you can add your location, which I don't care about.
-
-Unknown Speaker 15:55  
-Yeah, then they ask you for any people you say no. And then it just basically says like again to their flow just says like it's under consideration or whatever you know like it's pending review. I'm just seeing if anyone wins. Yeah actually if I go back and look into them they're all pending all my recent ones are pending review and I uploaded them in like end of June so that's like well over a month ago, it's like six weeks ago. They're still under review. Oh my god. Let me see if I can find one. He's not Oh, yeah, so I got photos from April which have been approved so I can see like a couple of months of backlog at least on their side. But it's not really something I go in and check all the time.
-
-Unknown Speaker 16:40  
-And just so I un derstand what
-
-Unknown Speaker 16:42  
-what you're doin g, you're on your phone right now. And have you got like a list of
-
-Unknown Speaker 16:48  
-photos that I'm just looking at, like my profile in [[Twenty20]]. Okay, just rolling through the photos and then I will tap on one and then it tells you the tells you The date it was uploaded, and then it also tells you like whether it's been reviewed or not. Okay, so what happens, I think is if it's for editorial is automatically approved. Yeah, I don't, I don't know what they do for like porn and stuff. But like for regular photos, you upload it and you say like, there's a picture of this person's picture editorial, just go straight through. And then basically what they do is they review it for commercial use. And that's the one that take ages. But since I think they have a lot of editorial customers, because I sell a lot of editorial stuff. That's probably why it feels faster because it's just like, I upload it, and it's literally on sale now. Right? Yeah.
-
-Unknown Speaker 17:36  
-So I've got a co uple of we got some comments. So we did like an NPS survey the other day and we got a couple of comments that we calculate is like important, or like they're all important, obviously, but like from like, ranging from the most important to like, though, at least with and I just want to get your thoughts on this. And I'm thinking like maybe your experience with another platform, this might be
-
-Unknown Speaker 18:07  
-insightful. So
-
-Unknown Speaker 18:10  
-photos are sort ed chronologically, and it's hard to find the best of.
-
-Unknown Speaker 18:17  
-Yeah, I would ag ree with that. But I also think that's the standard, like, that's the standard experience across every platform. I don't know, any platform, at least one that I use, which sorts it by like best or anything. Yeah. The one feature which [[Twenty20]] has, which is nice, I guess is they have a separate section that shows you photos you've sold or photos that have worn missions or have done well in missions. So it's like when missions are done well missions or sold. And there's basically it's like a shortlist of like your best photos because you've obviously been selling them or they've done it all in competition. So that's actually nice. Like, occasionally I would look through there and just see like, try and get it under I knew what my best cells are. But then they're also chronologically ordered. So there's nothing that you can't sort it by like my most solid picture or anything like that. Yeah, I guess one thing, I guess a feature I miss is like, I want to see which photos haven't sold, actually, because I just want to get rid of them off my profile. I mean, the more you have, the more you have to manage. And the more like of a footprint you're leaving, I suppose. So. If I can just keep my profile to like 200 really good selling photos that will be much easier. I've got photos now, which I probably uploaded three years ago, and I've never sold one site. Yeah, I might as well take down but I have no way to identify them. Like that's so hard.
-
-Unknown Speaker 19:44  
-Yeah, sure. All right. Next one. Photos are unstructured. And it's hard to find all photos of one thing.
-
-Unknown Speaker 19:55  
-Yeah, that's pro bably true. Not something that I personally care about. But, but maybe that's just Yeah, me as a photographer, like, I'll just, I'll just take photos of anything. So it could be people's hands could be people running around the park. Could be like, I don't know, like, picture of a flag or whatever the sky. I don't care about organizing my pictures. And by theme.
-
-Unknown Speaker 20:19  
-Yes, me personal ly.
-
-Unknown Speaker 20:21  
-Yes. So you don 't use these collections?
-
-Unknown Speaker 20:26  
-feature.
-
-Unknown Speaker 20:28  
-I
-
-Unknown Speaker 20:31  
-need to scroll through feed for ages in order to find a specific photo.
-
-Unknown Speaker 20:37  
-Yeah, like your profile? I guess that's referring to. Yeah. Yeah. Like, yeah, you would. I would agree with that. But that's also the same for all platforms. I have to do that on [[Twenty20]] as well. I mean, yeah, I guess it depends why you're looking for the photo, or if there was another way to find it. Yeah, with iOS They have a really good search or like I know how to use the search or like cactus search, I suppose. So I was looking for a specific photo, I would search for my username. And like if I was looking for a picture of PETA, for example, I might have tagged with PETA. So I would just type in my username on Pedro and try and find it. Yeah. Yeah.
-
-Unknown Speaker 21:20  
-And confusing ma rket states
-
-Unknown Speaker 21:23  
-and unstructured overview of market photos.
-
-Unknown Speaker 21:28  
-Yeah, the state' s definitely out already touched on that. Yeah. It's it's confusing if stock just stays in, like purgatory. And you have no idea what's happened to it.
-
-Unknown Speaker 21:42  
-And then what wa s the other thing the states and
-
-Unknown Speaker 21:44  
-confusing market states and unstructured overview of market photos?
-
-Unknown Speaker 21:50  
-Yeah.
-
-Unknown Speaker 21:53  
-I guess well, t hat's Yeah, I am. I am different to 202aense that I am community and Market whereas [[Twent20]20r,erything's on sale. So, yeah, you don't have split between all my photos and my market photos. But they're still unstructured. Like they're just organized chronologically, and there's not really another way to sort through them. I don't think.
-
-Unknown Speaker 22:18  
-So there's no wa y to see like,
-
-Unknown Speaker 22:21  
-what is
-
-Unknown Speaker 22:24  
-still being rev iewed? What's being like what's on the market?
-
-Unknown Speaker 22:29  
-Check.
-
-Unknown Speaker 22:33  
-Yeah, you can o nly see like all photos or videos or collections, or like your own like photos. Yeah, like photos. Like, yeah. And then there is that separate list of what you've sold, but it's not Yeah, not the same thing. You definitely can't filter by.
-
-Unknown Speaker 22:53  
-by state like ma rket status. Yeah.
-
-Unknown Speaker 22:55  
-Yeah.
-
-Unknown Speaker 22:59  
-All right. Next one is lack of seller stats.
-
-Unknown Speaker 23:05  
-Yeah.
-
-Unknown Speaker 23:07  
-I think yeah, t hat's always a topic that came up even for us and like, I don't know, we never did proper user testing around. We never validated whether everybody wants this but yeah, people like to see what their best sellers are. I think like I personally do. Maybe I'm a bit biased but with with 202ajust trying to find it.
-
-Unknown Speaker 23:34  
-Oh, yeah. So you have pretty similar time you have this area of light your solid pictures, but it just gives you like, just gives you a list of everything you've solved for that month. Okay, um, so you just like, tap inside is very, very similar. I know. It's really hard with the light.
-
-Unknown Speaker 23:50  
-No, it's okay. Y eah. Yeah.
-
-Unknown Speaker 23:54  
-It's pretty simi lar to our like sold page, where you can see how much you've earned and which ones you've sold. So yeah, to get an idea of your best sellers, you have to go into every month scurrying around to see if you recognize ones which keep popping up. Yeah, I can understand why people don't build these features, though. Well, I don't know. It might bring you more revenue like indirectly, but if people can understand what sells, they might upload more of it. But yeah, I don't know. It's hard to measure.
-
-Unknown Speaker 24:25  
-And last one is it's time consuming to delete photos. Need photos? photo by photo?
-
-Unknown Speaker 24:34  
-Yeah. Yeah, I me an, that's true. At the same time, like, again, like providing someone with an awesome wedding photos, it's not gonna make you any money. So I can understand why it's maybe maybe not a priority. Yeah, maybe if you have, yeah, you don't really want people deleting photos from the platform. So it's a bit of it's bit hard with that one, but Yeah, the photos like I said before the photos I would want to delete ones which are not performing well. So maybe you don't lose any revenue from it and you actually make use of the people are not going to delete photos or making them money. I'm pretty sure.
-
-Unknown Speaker 25:14  
-Yeah, I guess Ex actly.
-
-Unknown Speaker 25:16  
-Yeah. So it wou ldn't do any harm, I guess. Yeah,
-
-Unknown Speaker 25:21  
-I don't know abo ut that. Yeah, I, I wonder like, going back to your point about being able to clean up your profile. Because if the photos are not good for selling, then maybe they will deter people from looking at other photos that might be good in your your profile. So having that ability Yeah,
-
-Unknown Speaker 25:39  
-you're right mig ht
-
-Unknown Speaker 25:41  
-only serve to i mprove your profiles look.
-
-Unknown Speaker 25:45  
-Yeah, exactly. A nd I guess you could, I guess you could say that I am has an incentive to clean up bad photos because you know, every bad leaf or flower photo that's on someone's profile could show up in search and you know, buyers will be like ah, enough with the bad But it's like showing something good. Yeah. Could be, I guess, yeah, you could get around it like that. Yeah, that's true. Because I think nobody, like everyone's, you know, just social media in general. Everyone curates, you know, you curate your brand, your profile, you want people to see the best parts of it. So yeah, if you can't delete stuff, which is bad, that kind of sucks, or if it's hard to say stuff. Yeah.
-
-Unknown Speaker 26:27  
-And that's, I me an, that's everything that we kind of got from the survey. Is there anything fake? Is there anything kind of like, broadly speaking, like, how would you say I am compared with say 202rof feature parity in terms of just general experience? Just a broad comment would be nice to know.
-
-Unknown Speaker 26:50  
-Yeah.
-
-Unknown Speaker 26:52  
-I think the the thing which I am is always had going for it is the community part, like, you lose that you're basically the same as everyone. The platform. Yeah. And then, I mean, I know it from an insider's point of view, but you obviously have like, this technology side. So the key wording and search as well. The computer vision side of things, I guess 20 has something similar or especially with the keywording, because now they have suggested keywords. I don't know what service they use, but they might be trying to offers the same thing, but I guess those are the things that make it stand apart. Yeah, it's probably the community aspect, which which stands out for me, but then. Yeah, it depends. Yeah, I guess it depends. Like, if you're still trying to grow community user base, or if it's all just about selling now, in which case, do you want to, cuz sellers don't care if they're just pure sellers. They don't care about the community. They don't want to chat with people. They just want to make money.
-
-Unknown Speaker 27:59  
-Well Just to giv e you some inside knowledge we
-
-Unknown Speaker 28:07  
-were kind of
-
-Unknown Speaker 28:08  
-trying to figur e out where I am sees itself going in the future because we've done a lot more professional photoshoots for enterprise customers. Yes, I was seem to be making a lot of success with this way. And we're trying to understand on the community sides. Why these photographers that we source for these particular professional shoots, I'm not interested on being an iron. I mean, we have this kind of statement that I don't want to be associated with stock photography. And it's partly my task is to investigate what is it specific about
-
-Unknown Speaker 28:53  
-like to kind of validate this statement, because
-
-Unknown Speaker 28:56  
-I think it's a v ery bold one that we need to identify
-
-Unknown Speaker 29:03  
-As a product
-
-Unknown Speaker 29:05  
-Yeah. I mean, I guess you Yeah, you have those really strong like top photographers that, you know, it's not. It's not like a way to make money for them. It's like an art. It's their art to destroy. Yeah, we always had that on that side of the community as well. Who didn't want? Yeah, the stock side to destroy that.
-
-Unknown Speaker 29:32  
-And, yeah, so we 're trying to, I guess try to see. So we got this interesting situation where like we've got, we know we have motivation from these commercial photographers that are doing really good work with these big brands. And they're a very valuable commodity to iron right now.
-
-Unknown Speaker 29:57  
-However,
-
-Unknown Speaker 30:00  
-They don't have any interaction with our service, like our digital services. And we basically we need to figure out like, are we providing them with enough already? Or is there something more tangible that we can provide that would somehow become the more devoted to the brand of I Am, because in theory, Iam is at this point still like a, an agency service, which provides them with money, but they could just go to any agency, and it's just a question of like, what is the what is the unique hook for them to to be invested in iron? It could also be like the community side how genuine they are to the to the, to the art form itself. It's, it's just a question of figuring out like, what's,
-
-Unknown Speaker 30:47  
-what's their tak e on it?
-
-Unknown Speaker 30:49  
-Yeah, yeah. And it's hard to cater for everyone as well as so many different groups who have like, completely different reasons to use. I am so yeah. It's it's it is really hard one to like cater for everyone. Yeah.
-
-Unknown Speaker 31:07  
-Cool. Well, let' s leave it here, Cassie. I mean, this was awesome to kind of get your take on using 202nthink I've ever talked with someone about using a great deal. And I appreciate you taking your afternoon to
-
-Unknown Speaker 31:22  
-talk with ghosts from the past.
-
-Unknown Speaker 31:26  
-waves. If you th ink of anything else specific you want to know, like, just shoot me an email and like with the questions and I can write down some notes for you.
-
-Unknown Speaker 31:34  
-Yeah, I know. A Peter is always wanting to redesign the sellers dashboard. So maybe you're a good person to look at that.
-
-Unknown Speaker 31:43  
-Yeah, absolutely . Yeah. Anyone who's been selling an item for a long time. It's me. Yeah, that that would be good. That'd be good. hackathon. Project. Data. Yeah. Get it done. Yeah, stats. users love stats.
-
-Unknown Speaker 31:57  
-Yeah.
-
-Unknown Speaker 31:58  
-All right. Cass ie. Thanks so much. Lesson Enjoy the rest of your night.
-
-Unknown Speaker 32:02  
-Thanks. See you later.
-
-Unknown Speaker 32:03  
-Bye bye
-
-[//begin]: # 'Autogenerated link references for markdown compatibility'
+- Kirsty: Yeah, I've always been into mobile photography because I've had a smartphone for quite a while. You know, being half Asian, I'm always taking photos.
+- Kirsty: Yeah, I started taking pictures before, but I never sold them I mainly took pictures for pleasure. I use [[Instagram]], and I was a user of EyeEm before I started working there. When I joined at EyeEm as a Product Manager in 2014, we didn't have the marketplace, just a community. We spent the next years building the marketplace, EyeEm Awards and how to handle enterprise clients. In general, I was mostly focused on the web team building both the buyer and seller side, so as you can imagine, it was very two-sided. I worked quite a lot with Nicholas's team by building the [[Inspector]] tool. Is it still called that? Yeah, so we put a lot of work into how EyeEm processes pictures, but mostly my job was focused on the customer-facing part. Enterprise didn't exist at that stage, the assumption was like, "okay, consumers will buy one type of photo, and they can choose from three levels of pricing".
+- Jesse: So by the time you left EyeEm, was the experience similar to what it is today?
+- Kirsty: Yeah in some ways, most of the [[Upload]] traffic was still on mobile, and during that time we built the web uploader. However, as far as I can tell, our web upload experience was pretty basic. You could add some tags, and then that was it.
+- Jesse: Have your habits changed, moving on from EyeEm?
+- Kirsty: Yeah, I guess, I take fewer photos, and I definitely don't do [[Release]]s anymore. At EyeEm, it was super easy to sort out my releases because we were all taking photos of each other.
+- Jesse: And do you have a specific idea of what to shoot? Or do decide at the moment?
+- Kirsty: I don't have any plan for what I want to shoot. It's rare, but on occasion when taking pictures of my friends, I take a close-up of their hands because I know, without a [[Release]] it can sell quickly. I definitely wouldn't walk around the city with the purpose to sell photos. Instead, the idea to sell comes to me when I scroll through my camera roll, and the thought comes that selling this or that photo is possible.
+- Jesse: How do you know that's like something with hands will sell more? Is that expert knowledge you've learnt from EyeEm?
+- Kirsty: I just know that you can sell those types of photos without a [[Release]]. I know the rules around model and property releases from working at EyeEm.
+- Jesse: I know you use [[Twenty20]] as a place to sell photos, but do you use any other similar services?
+- Kirsty: I also use [[Shutterstock]] and EyeEm. I don't really use any on any other platforms. I rely on EyeEm to send my photos to [[Getty Images]].
+- Jesse: Using those three services as an example, how would you define a good seller experience?
+- Kirsty: I think it's a comfortable [[Upload]] experience. One of the best thing about EyeEm is that you don't have to manually [[Keyword]] your photos, the suggestions aren't perfect, but it's good enough. I'm not precious when it comes to keywording my photos, I recognise that some people are, but I'm not one of them. [[Keyword]] suggestions are the big thing that sets EyeEm apart from the rest. I think [[Twenty20]] has begun testing keyword suggestions in their upload experience and [[Shutterstock]] have always had them; however, the recommendations aren't great.
+- I definitely feel like my experience at EyeEm leads me to think that my keywording will be taken cared of, while Shutterstock it's solely my responsibility. In general, [[Shutterstock]] feels like more effort because I have to be more considerate of my keywords. [[Twenty20]] is a lot better by comparison, at the end of the [[Upload]] flow they ask you to identify models, which mitigates some of the work done on [[Inspector]]. How accurate it is, I don't know. Still, I can imagine most people probably just proceed through without checking the photos.
+- Jesse: Are there any other features that you feel is necessary for good user experience?
+- Kirsty: [[Twenty20]] doesn't have an editing step in their upload flow, so in a way the process is more straightforward then what EyeEm has, you just upload the finished photo. Comparing Twenty20 and EyeEm, I think the [[Upload]] processes themselves are relatively similar. Moving away from the upload experience, one thing I like about Twenty20 is that when you sell a photo, you always get a [[Notification]]. Getting those regular notifications is a little moment of joy. Twenty20 spreads out those notifications over the month, unlike EyeEm, which sends all emails at the end of the month.
+- Kirsty: Getting fairly regular congratulation emails are nice, and it encourages me to engage with the product more frequently. Yeah, and then, the topic of [[Earnings]], everyone likes to the platform where they make the most money. Doesn't really matter how hard the process is to sell if it means more money at the end of the day. Since [[Envato]] acquired Twenty20, I actually make more [[Earnings]]. They aren't transparent how I make money, but at the end of the day, I don't really care. So I'm actually making more from Twenty20, even though my [[Upload]] rate for EyeEm & Twenty20 is about the same.
+- Kirsty: The reason why I sell more stuff is that you can sell photos under an [[Editorial]] license. This means you can just [[Upload]] photos without worrying about releases. On Twenty20 I upload little to no photos with releases, it's been like that for years now. I guess that that's pretty nice.
+- Jesse: So just be clear the [[Payouts]] money you earn is higher on Twenty20 than Twenty20?
+- Kirsty: Yeah, on a month to month basis, I would say so, but maybe it has to do with the type of photos I'm selling.
+- Kirsty: On the topic of [[Performance]]; I'm not sure because the servers are based in Europe, but EyeEm's app seems slow when compared with EyeEm. Australian internet isn't great, but sometimes I feel like I'm waiting for so long for my feed to load. Can be very off-putting for me.
+- Kirsty: I don't know if people are aware of that, because EyeEm probably doesn't have heaps of Australians providing feedback. I did notice it when I moved here, I was like, "Oh my God, why is it so slow?". Probably has something to do with my internet but also EyeEm's servers.
+- Jesse: Since you've contributed to the [[Inspector]] tool, you understand how it works but as a user, how would you describe in your own experience with the approval process?
+- Kirsty: I see a lot of my photos as [[Selected]] which sucks because I know that it's been [[Rejected]], however normal users probably wouldn't understand that. When I contributed to the [[Inspector]] tool, the way the process worked was if the photo is [[Selected]] and then rejected, we still just show selected to the user. So while I might understand that my photo has been [[Rejected]], an average user might think the queue for approval is just really long.
+- Kirsty: Would be nice to show why a photo is [[Rejected]] and with some details, for example; Is it too small? Did I miss a logo? Then again re-[[Upload]]ing photos is painful as well because I can't be bothered hunting for the photo in my camera roll. Even as a super-user I wouldn't re-[[Upload]], because I don't need the 20 cents from [[Getty Images]].
+- Jesse: How would you compare the EyeEm experience with [[Twenty20]]?
+- Kirsty: I don't think they even have a [[Market Status]], at the end of their flow it just says "pending review". All my recent Twenty20 photos are pending review actually, and I uploaded them at the end of June, which is well over a month ago. They're still [[Pending Review]], oh my god... So I have photos from April which have been approved, which means a backlog of a couple of months shows. I would rarely check, though.
+- Jesse: Just so I understand you're on your phone right now and your viewing a list of photos from your [[User Profile]]?
+- Kirsty: Yes. Okay, opening up one of my photos, [[Twenty20]] tells you the date it was uploaded, and whether it's been reviewed. I think if it's for an [[Editorial]] photo, it's automatically approved. I think during the upload flow, an "editorial" photo will skip the review process which is primarily meant for [[Commercial]] photos. That's why it feels faster probably because uploading editorial photos is easy and on sale immediately.
+- Jesse: So EyeEm recently ran an NPS survey, and we received a quite a few feedback points, would you mind if we went through each point?
+- Kirsty: Sure
+- Jesse: Photos are sorted [[Chronological]]ly, and it's hard to find the best of.
+- Kirsty: Yeah, I would agree with that, but it's also a standard experience across every platform. I don't know, any platform, which sorts it by "[[Top Sellers]]". The one nice feature of Twenty20 is that you have a separate section showing all the photos you've sold or have won or have done well in missions. This is in a limited sense a "[[Top Sellers]]". Occasionally I would look through there to see what my best sellers are. Still, they're chronologically ordered. I would like to see what photos haven't sold, because I just want to [[Delete]] them from my profile. The more photos you have, the more you have to manage and the more of a footprint you're leaving. If I can just keep my [[User Profile]] to 200 really good selling photos that will be much nicer. I've got photos which I probably uploaded three years ago and never been bought. Might as well take them down, but there's no way to identify them.
+- Jesse: All right. Next one. Photos are unstructured, and it's hard to find all photos of one theme.
+- Kirsty: Yeah, that's probably true. However, this is not something that I care about. I'll just take photos of anything not caring about sorting them into [[Collection]]s.
+- Jesse: Yes. So you don't use Twenty20's [[Collection]] feature?
+- Kirsty: No
+- Jesse: Next one: I need to scroll through my feed for ages to find a specific photo.
+- Kirsty: Yeah, I would agree with that, but again that's also the same for all platforms. I guess it depends on why you're looking for the photo, or if there was another way to find it. Yeah because I know EyeEm [[Search]] pretty well I've learnt how to "hack" it. So for example, if I uploaded a photo which tagged Peter in the photo, I would search for my username and the word "Peter".
+- Jesse: Moving on. The [[Market Status]] for [[Commercial]] photos are confusing, and the overview of market photos are unstructured.
+- Kirsty: Yeah, the [[Market Status]] is definitely confusing — already mentioned that. It's confusing if the photos just stay in limbo and you have no idea what's happened to it. EyeEm is different from Twenty20 in that sense that it's both a [[Photography Community]] and a marketplace, whereas Twenty20 is just a marketplace. So you don't have a split between all my photos and my market photos but, they're still unstructured meaning they are organised [[Chronological]]ly.
+- Jesse: So there's no way to easily see what photo's still need to be reviewed or what's on the market?
+- Kirsty: Yeah, you can only see, your photos, videos, collections, or like photos. Yeah, liked photos and then there is that separate list of what you've sold.
+- Jesse: All right. Next one is lack of [[Seller Stats]].
+- Kirsty: That was always a topic that came up when I was still at EyeEm. Yet, we never validated whether everybody wanted it. For me personally, I do want to see what my best sellers are. Twenty20 experience is very similar to EyeEm [[Payouts]] page. So if you wanted to know what sells well, you would have to open up each month and look at each sold photo.
+- Kirsty: Yeah, I can understand why people don't build these features, though. It might bring you more revenue indirectly, but if people can understand what sells, they might upload more of it. It's hard to measure.
+- Jesse: And the last one is that it's time-consuming to delete photos.
+- Kirsty: Yeah, also correct. At the same time, providing someone with great deletion experience isn't gonna make EyeEm any money. Maybe its good to not make it so easy for users to [[Delete]] their photos having said that, I would want to delete photos which are not performing well. So maybe you don't lose any revenue from it, and you actually make users happy.
+- Kirsty: I guess you could say that EyeEm has an incentive to clean up bad photos because you know, every lousy leaf or flower photo that's on someone's profile could show up in [[Search]]. Buyers might find this annoying.
+- Jesse: Okay so we covered the critical points from the survey, is there any last words you would like to say?
+- Kirsty: I think the thing which EyeEm has always had going for itself is the [[Photography Community]]. If you lose that, you're basically the same as every other platform.
+
+[upload]: upload 'Upload'
+[twenty20]: twenty20 'Twenty20'
 [shutterstock]: shutterstock 'Shutterstock'
+[//begin]: # 'Autogenerated link references for markdown compatibility'
+[upload]: upload 'Upload'
+[twenty20]: twenty20 'Twenty20'
+[shutterstock]: shutterstock 'Shutterstock'
+[//end]: # 'Autogenerated link references'
+[//begin]: # 'Autogenerated link references for markdown compatibility'
+[instagram]: instagram 'Instagram'
+[inspector]: inspector 'Inspector'
+[upload]: upload 'Upload'
+[release]: release 'Release'
+[twenty20]: twenty20 'Twenty20'
+[shutterstock]: shutterstock 'Shutterstock'
+[getty images]: getty-images 'Getty Images'
+[keyword]: keyword 'Keyword'
+[notification]: notification 'Notification'
+[earnings]: earnings 'Earnings'
+[envato]: envato 'Envato'
+[editorial]: editorial 'Editorial'
+[payouts]: payouts 'Payouts'
+[performance]: performance 'Performance'
+[selected]: selected 'Selected'
+[rejected]: rejected 'Rejected'
+[market status]: market-status 'Market Status'
+[pending review]: pending-review 'Pending Review'
+[user profile]: user-profile 'User Profile'
+[chronological]: chronological 'Chronological'
+[top sellers]: top-sellers 'Top Sellers'
+[delete]: delete 'Delete'
+[collection]: collection 'Collection'
+[search]: search 'Search'
+[photography community]: photography-community 'Photography Community'
+[seller stats]: seller-stats 'Seller Stats'
 [//end]: # 'Autogenerated link references'
 
 [//begin]: # "Autogenerated link references for markdown compatibility"
+[Instagram]: instagram "Instagram"
+[Inspector]: inspector "Inspector"
+[Upload]: upload "Upload"
+[Release]: release "Release"
+[Twenty20]: twenty20 "Twenty20"
 [Shutterstock]: shutterstock "Shutterstock"
+[Getty Images]: getty-images "Getty Images"
+[Keyword]: keyword "Keyword"
+[Notification]: notification "Notification"
+[Earnings]: earnings "Earnings"
+[Envato]: envato "Envato"
+[Editorial]: editorial "Editorial"
+[Payouts]: payouts "Payouts"
+[Performance]: performance "Performance"
+[Selected]: selected "Selected"
+[Rejected]: rejected "Rejected"
+[Market Status]: market-status "Market Status"
+[Pending Review]: pending-review "Pending Review"
+[User Profile]: user-profile "User Profile"
+[Commercial]: commercial "Commercial"
+[Chronological]: chronological "Chronological"
+[Top Sellers]: top-sellers "Top Sellers"
+[Delete]: delete "Delete"
+[Collection]: collection "Collection"
+[Search]: search "Search"
+[Photography Community]: photography-community "Photography Community"
+[Seller Stats]: seller-stats "Seller Stats"
 [//end]: # "Autogenerated link references"
